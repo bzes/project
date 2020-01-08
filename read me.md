@@ -1,0 +1,1 @@
+sinjali is very bad
